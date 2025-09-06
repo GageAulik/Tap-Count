@@ -19,7 +19,7 @@ Zero ads, zero data collection, zero clutter
 
 If you run into problems, have questions, or want to suggest features, you can reach me at:
 
-Email: [your.email@example.com
+Email: [gageauilk.56@gmail.com
 ]
 
 I’ll do my best to get back to you quickly.
